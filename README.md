@@ -1,8 +1,4 @@
 ### Hi there 👋
-
-### Hi there 👋
-
-
 ### Welcome, I'm Dario!! ###
 
 
